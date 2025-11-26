@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning progamming languages 
 - 💞️ I'm beginner
-- 📫 How to reach me >insta  id - tanush.ydv
+- 📫 How to reach me < insta  id - tanush.ydv
 - 📫Email-tanushyadav9211@gmail.com
 
 <!---
